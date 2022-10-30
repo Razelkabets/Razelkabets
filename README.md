@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Razelkabets
+- 👀 I’m interested in managing production processes!
+- 🌱 Graduated BSc in Computer Science. 
+- 💞️ Currently working as a PM at Bynet Data Communications Ltd.
+- 📫 You can reach me at Razelkabets050@gmail.com
